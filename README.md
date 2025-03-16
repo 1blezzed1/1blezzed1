@@ -2,7 +2,7 @@
 
 ###
 
-<h4 align="center">16 Years Old, 🛠️Nexonix Owner🛠️</h4>
+<h4 align="center">16 Years Old</h4>
 
 ###
 
